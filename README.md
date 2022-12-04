@@ -13,3 +13,5 @@ A lot of people are worried that they will be playing slots and win too much mon
 
 ## Slots are the most popular game at casinos.
 Slots are the most popular game at casinos. The reason why slots have been around for so long is because they're easy to play, but there's a lot of strategy involved as well. Each slot machine has its own special features, which makes them all unique.
+
+To find some  [no deposit slots](https://nodepositslots.org/) you can reach the website that is linked, there you can get all the demo plays iframes from the src param.
